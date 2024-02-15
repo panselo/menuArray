@@ -1,0 +1,1 @@
+esecitazione in classe
